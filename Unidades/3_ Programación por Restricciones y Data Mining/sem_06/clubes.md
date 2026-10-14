@@ -1,0 +1,1 @@
+https://es.wikipedia.org/wiki/Anexo:Sorteo_de_la_Copa_Mundial_de_F%C3%BAtbol_de_2022
